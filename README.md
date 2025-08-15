@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @gayathri-54b8
+- 👋 Hi, I’m @gayathri
 - 👀 I’m interested in coding
 - 🌱 I’m currently a student
 - 💞️ I’m looking to collaborate on new projects
